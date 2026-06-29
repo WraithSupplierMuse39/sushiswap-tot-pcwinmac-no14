@@ -1,4 +1,4 @@
-# 
+# Premium sushiswap trading bot extensões for Mac OS | Elite sushiswap trading bot extensões for PC Windows. Featuring API de exchange descentralizada and estratégia de reversão à média — optimized for maximum performance.
 
 
 
